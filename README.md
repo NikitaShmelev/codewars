@@ -1,0 +1,1 @@
+https://www.codewars.com/users/n.shmelyov/stats
